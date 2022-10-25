@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zuxism
+- 👋 Hi, I’m ZuZu from @zuxism
 - 👀 I’m interested in ... mastering zuxism
 - 🌱 I’m currently learning ... everything
 - 💞️ I’m looking to collaborate on ... joint projects
